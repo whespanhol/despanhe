@@ -25,3 +25,4 @@ samulino11
 cebolinha7
 pedroqueixada9
 luizaraujo7
+pulgar5
