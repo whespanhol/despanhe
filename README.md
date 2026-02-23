@@ -46,5 +46,57 @@ serginho
 dida
 sosboslay
 haggi
+calabreso
+muçarelo
+guachinin
+plata
+royal
+danilo
+jorginho
+lino
+cebolinha
+felipe
+rmp
+e araujo
+rossi
+danilo
+leo pereira
+vitão
+alecsandro
+pulgar 
+ewerton araujo
+arrascaeta
+paqueta
+pedro
+cebolinha
+luiz araujo
+bruno henrique
+samuel lino
+walace yan
+dela sus
+paulinho
+vitor roque
+brunorodrigues
+arias
+serna
+bernal
+diniz
+leo jardim
+adre gomes
+loide
+martinelli
+recopa
+corinthians
+lusa
+paulistao
+cariocao
+flamengo campeao
+virada
+remontada
+revanche
+flores
+goleada
+vao chorar
+abel ferreira
 salah
 viniciusjr
